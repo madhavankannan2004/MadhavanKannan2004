@@ -7,5 +7,5 @@
 
 ## 📬 How to Reach Me
 
-- Email: [madhavankannan2004@gmail.com](mailto:madhavankannan2004@gmail.com)
+- Email: [madhavankannan2004[at]gmail[dot]com](mailto:madhavankannan2004@gmail.com)
 - LinkedIn: [in/madhavan-kannan-721182264](#) *(https://www.linkedin.com/in/madhavan-kannan-721182264)*
